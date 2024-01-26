@@ -1,0 +1,1 @@
+# BlueArchive_SimplifiedChinese
